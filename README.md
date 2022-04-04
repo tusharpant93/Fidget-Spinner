@@ -10,4 +10,8 @@ Children, college students and adults alike are scooping up the toys as a way to
 
 Not only changing, how we look at the TANGIBILITY of a product/service but the whole product to disrupt the world of gaming.
 
-![image](https://user-images.githubusercontent.com/72465037/161597080-d1408371-e56c-41f6-86cf-2aa5ada45025.png)
+
+
+
+
+![image](https://user-images.githubusercontent.com/72465037/161597216-98aa475c-9be8-4f73-86ea-012646d16d58.png)
